@@ -1,4 +1,4 @@
-# Cheesecake sans cuisson
+# Cake salé
 
 Source: http://www.marmiton.org/recettes/recette_base-cake-sale-et-differentes-garnitures_223949.aspx
 
