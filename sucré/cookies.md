@@ -1,4 +1,4 @@
-# Cheesecake sans cuisson
+# Cookies
 
 Source: http://www.750g.com/cookies-aux-pepites-de-chocolat-r89377.htm
 
