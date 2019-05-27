@@ -12,6 +12,7 @@ Source: http://www.lesgourmandisesdetitenoon.com/article-cheesecake-sans-cuisson
   - 30 cl de crème fleurette entière
   - 150g de sucre en poudre
   - 1/2 citron
+  - optionel: 4g d'agar agar
 - Optionel: Lemon curd
   - 1 citron
   - 1 oeuf
@@ -21,11 +22,12 @@ Source: http://www.lesgourmandisesdetitenoon.com/article-cheesecake-sans-cuisson
 ## Instructions
 
 - 1. Préparer la croute: réduire les spéculos en miettes, faire fondre le beurre, ajouter le beurre aux biscuits. Etaler la mixture au fond d'un moule à manqué à fond amovible. Réserver au frigo.
-- 2. Préparer le crème cheese: mélanger le philadelphia, le sucre, le jus du 1/2 citron et la vanille. 
-- 3. Dans un autre saladier, faire monter la crème fleurette en chantilly. 
-- 4. Incorporer doucement la chantily au crème cheese sans trop casser la chantilly. 
-- 5. Etaler la crème au dessus du biscuit
-- 6. Laisser reposer une nuit au réfigérateur
+- 2. Préparer le cream cheese: mélanger le philadelphia, le sucre, le jus du 1/2 citron et la vanille. 
+- 3. Optionel: pour avoir une crème plus consistante, faire chauffer de l'agar agar dans 2 cuillères à soupe d'eau, éteindre quand le mélange arrive à ébulition. Ajouter au cream cheese
+- 4. Dans un autre saladier, faire monter la crème fleurette en chantilly. 
+- 5. Incorporer doucement la chantily au crème cheese sans trop casser la chantilly. 
+- 6. Etaler la crème au dessus du biscuit
+- 7. Laisser reposer une nuit au réfigérateur
 
 ## Optionel: Lemon curd
 
