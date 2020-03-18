@@ -20,7 +20,7 @@ http://www.magazine-exquis.com/recette-de-fricassee-de-poulet-de-bresse-au-vinai
 - Couvrir et poursuivre la cuisson à four chaud, sans excès, une vingtaine de mn.
 - Cuits à point, les morceaux de volaille sont réunis sur un plat, couverts et tenus à chaud.
 - Faire revenir à blanc 4 échalotes hachées dans le beurre du plat à sauter.
-- Déglacer avec le vinaigre de vin en trois fois. Faire réduire de moitié et monter cette sauce avec 50g de beurre et le concentré de tomate.
-- Faire baigner les morceaux de poulet dans la sauce une vingtaine de minutes.
+- Déglacer avec le vinaigre de vin en trois fois. Faire réduire de moitié. Ajouter le concentré de tomate. Monter cette sauce avec 50g de beurre.
+- Faire baigner les morceaux de poulet dans la sauce une vingtaine de minutes. Ne pas faire bouillir la sauce sinon le beurre va se dissocier.
 - optionel: servir avec une pointe d'estragon.
 
