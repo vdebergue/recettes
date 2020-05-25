@@ -2,7 +2,7 @@
 
 Source: http://www.750g.com/cookies-aux-pepites-de-chocolat-r89377.htm
 
-## Ingrédients 4 pers - 10 portions
+## Ingrédients ~8 cookies
 
 - 100g de pépites de chocolat
 - 1/3 de sachet de levure
