@@ -30,6 +30,7 @@ Béchamel:
 - 50g de parmesan
 - 100g de Talegio ou mascarpone
 
+Montage:
 - Pate à lasagne
 - 50g de Parmesan (en plus de la sauce béchamel)
 
