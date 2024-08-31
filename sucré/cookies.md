@@ -25,7 +25,7 @@ Source: http://www.750g.com/cookies-aux-pepites-de-chocolat-r89377.htm
 
 # Version avec pistaches
 
-## Ingrédients 
+## Ingrédients 6-8 cookies
 
 - 1CS de pâtes de pistache par cookies
 - 1 oeuf
